@@ -1,4 +1,4 @@
-# Brando Higgins
+# Brando Higgins 🚀
 #### Aspiring Aerospace Engineer and Hobbyist Developer
 
 ![stars woo](https://github.com/brandoinspace/brandoinspace/assets/153570756/734042a2-1271-473b-a0d0-5afe2ae21908)
